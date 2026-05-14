@@ -1,4 +1,4 @@
-# 
+# Sejda PDF for PC | Sejda PDF for Windows rare Addon: merge-PDFs & annotations offers the most advanced Sejda PDF for PC | Sejda PDF for Windows addon, with merge-PDFs and
 
 
 
